@@ -1,0 +1,2 @@
+# thisisourfirststep
+seni seviyorum
